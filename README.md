@@ -1,1 +1,1 @@
-Cos jest tu napisane
+cos inego napisane o wielie wiecej
